@@ -1,7 +1,9 @@
-### Hemlo
+### Just a Goat (Stonewall0210)
 
-You know what to call me, its right there to the left. And above. And in the URL. And plastered over most of what I own. And also...
+Professional goat (contrary to popular belief, no I am not a ram)
 
-_this is where most people would put their achievments or sumthin but i got nothin, and if i try to find any we'd be here all day, and would ya want that?_
+I code Minecraft mods sometimes.
 
-_just move along and stuff_
+I'm also doing some Wii mods, those aren't public though.
+
+Has Autism, tread carefully!

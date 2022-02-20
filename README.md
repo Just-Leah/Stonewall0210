@@ -1,4 +1,4 @@
-### Just a Goat (Stonewall0210)
+### Leah (Just a Goat/Stonewall0210)
 
 Professional goat (contrary to popular belief, no I am not a ram)
 

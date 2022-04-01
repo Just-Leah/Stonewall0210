@@ -1,9 +1,7 @@
 ### Leah (Just a Goat/Stonewall0210)
 
-Professional goat (contrary to popular belief, no I am not a ram)
+Professional procrastinator
 
-I code Minecraft mods sometimes.
+When I do get things done it's mostly coding.
 
-I'm also doing some Wii mods, those aren't public though.
-
-Has Autism, tread carefully!
+I regret most if not all my desicions
